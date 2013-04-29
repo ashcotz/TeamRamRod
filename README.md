@@ -1,5 +1,5 @@
 TeamRamRod
 ==========
 
-heyyyyy. yeah. nigga.
+heyyyyy.
 LOOK AT ME LEARN.
